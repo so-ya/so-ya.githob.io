@@ -1,1 +1,0 @@
-# so-ya.githob.io
